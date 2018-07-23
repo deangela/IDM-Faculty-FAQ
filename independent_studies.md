@@ -13,7 +13,7 @@ Independent Studies operate differently than a full on class, in that the struct
 
 The main thing is that the work that the student does must merit 3 credits (unless otherwise specified), so the work for the semester should justify this (a good measure is a 3 credit class has 60 working hours/term). Additionally, the goal of an Independent Study should be for advancement of skills/interest outside of what is covered in our course offerings.
 
-**Please note if you are teaching 6 credits in a semester, you can only take on 1 independent study.**
+
 
 
 
